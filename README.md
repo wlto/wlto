@@ -1,1 +1,1 @@
-bringing pixels to life. one at a time. 👾
+bringing pixels to life 👾
